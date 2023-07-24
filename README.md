@@ -1,0 +1,1 @@
+# AI_trends_assignment_1
